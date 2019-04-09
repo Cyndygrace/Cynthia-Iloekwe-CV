@@ -31,5 +31,24 @@ ___                                                                             
 •	Christ Ambassadors College, Sabon tasha, Kaduna State                  		2000-2005
 
 •	Wilson Group of Schools Gwari Avenue Barnawa, Kaduna State                 	1993-1999
+___                                                                                     ___
+**ACADEMIC QUALIFICATIONS**
+___                                                                                     ___
+**Masters in Industrial Engineering Management**
+
+>Department of Industrial and Systems Engineering, 
+>Faculty of Technology. 
+>University of Ibadan, Nigeria.
+
+**Bachelor of Engineering, Computer engineering (B.ENG.)**
+
+>Department of Computer Engineering
+>Faculty of Engineering.
+>CARITAS University, Amorjinike, Emene, Enugu State
+
+**West African Examination Council (WAEC)**
+
+>Christ Ambassadors College, Sabon tasha, Kaduna State, Nigeria
+
 
 
