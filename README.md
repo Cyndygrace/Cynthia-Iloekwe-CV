@@ -82,6 +82,21 @@ Position Held: **Trainer and Project assistant.**
 •	Train students and staff in the networking field.
 
 •	Assist in networking projects.
+___                                                                                     ___
+**VOLUNTEERED SERVICES** 
+___                                                                                     ___
+**St. Egidio Community, St. Martin de Poress**
+
+•	Soup kitchen for the poor and homeless
+
+•	School of peace for children (4yrs -12yrs)
+
+**Imoran Center for Social and Professional Development, Ibadan**
+
+•	Leadership club for high school girls
+
+•	Young professional club
+
 
 
 
