@@ -21,4 +21,15 @@ ___                                                                             
 >System Application and Product(SAP-ERP)Certified Associate                 February, 2017
 
 >Networking training with certificate 						                2015	
+___                                                                                     ___
+**EDUCATIONAL HISTORY**
+___                                                                                     ___
+•	University of Ibadan, Ibadan, Oyo State                   					2013-2015
+
+•	CARITAS University, Amorjinike, Emene, Enugu State                     		2005-2010
+
+•	Christ Ambassadors College, Sabon tasha, Kaduna State                  		2000-2005
+
+•	Wilson Group of Schools Gwari Avenue Barnawa, Kaduna State                 	1993-1999
+
 
