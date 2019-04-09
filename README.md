@@ -96,6 +96,29 @@ ___                                                                             
 •	Leadership club for high school girls
 
 •	Young professional club
+___                                                                                     ___
+REFEREES
+___                                                                                     ___
+**Prof. Victor O. Oladokun**
+
+Full Professor, Industrial and Production Engineering
+
+University of Ibadan
+
+Tel: +2348033919050
+
+Email: victordokun@yahoo.com
+
+**Mr. Bradley Bock**
+
+Lecturer, Mechanical Engineering
+
+University of Pretoria
+
+Tel: +27767516398
+
+E-mail: Bradley.Bock@up.ac.za
+
 
 
 
