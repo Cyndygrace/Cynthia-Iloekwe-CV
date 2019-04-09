@@ -1,5 +1,5 @@
 # ILOEKWE, Cynthia Uche
-### 968, FRANCIS BAARD STREET, ARCADIA, PRETORIA, 0002. SOUTH AFRICA.
+### 9/11 Ikenne Street, Kilo Bust-stop, Surulere, Lagos.
 ### **MOBILE PHONE NUMBER**:(+27)646957960	**EMAIL**:cyniloekwe@gmail.com
 ___                                                                                    ___
 **BIO DATA:**
@@ -49,6 +49,41 @@ ___                                                                             
 **West African Examination Council (WAEC)**
 
 >Christ Ambassadors College, Sabon tasha, Kaduna State, Nigeria
+___                                                                                     ___
+**WORK EXPERIENCE**
+___                                                                                     ___
+**Department of Mechanical Engineering** 						     Aug. – Nov. 2017     
+**University of Pretoria, Hatfield, South Africa.**
+
+Position Held: **Teaching Assistant**
+•	Propose an Engineering project for 300 Level engineering students.
+
+•	Supervise the students in implementing the project.
+
+•	Grade project report and defense.
+
+**Department of Industrial and Production Engineering** 				Aug. 2016 – May 2017     
+**University of Ibadan, Oyo state, Nigeria.**
+
+Position Held: **SAP Programme Coordinator**
+
+•	Train students and staffs in the use of Enterprise Resource Planning (ERP) software called System Application and Product (SAP)
+
+•	Oversee the smooth running of each training session
+
+•	Ensure the sustainability of administering SAP ERP Certification training in the University of Ibadan
+
+**Khemsafe Computers & Communications Ltd, Kaduna, Nigeria.**                  Mar- July 2016     
+
+Position Held: **Trainer and Project assistant.** 
+
+•	Marketing to both individuals and companies
+
+•	Train students and staff in the networking field.
+
+•	Assist in networking projects.
+
+
 
 
 
