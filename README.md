@@ -15,5 +15,10 @@ ___                                                                             
 **SOFTWARE SKILLS AND INTERESTS**
 ___                                                                                     ___
 >Web development, digital marketing, Industrial Consulting, Computer Programming, Computer applications, High proficiency in Microsoft Office Packages.
- 
+___                                                                                     ___
+**CERTIFICATIONS** 
+___                                                                                     ___
+>System Application and Product(SAP-ERP) 						
+ Certified Associate                                            February, 2017
+>Networking training with certificate 						    2015	
 
