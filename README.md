@@ -18,7 +18,7 @@ ___                                                                             
 ___                                                                                     ___
 **CERTIFICATIONS** 
 ___                                                                                     ___
->System Application and Product(SAP-ERP) 						
- Certified Associate                                            February, 2017
->Networking training with certificate 						    2015	
+>System Application and Product(SAP-ERP)Certified Associate                 February, 2017
+
+>Networking training with certificate 						                2015	
 
